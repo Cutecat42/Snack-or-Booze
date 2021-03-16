@@ -1,6 +1,5 @@
 ### Conceptual Exercise
-(Did 1.5 hours Monday)
-11:45am
+Finished full assesment in 3.5 hours
 
 Answer the following questions below:
 
